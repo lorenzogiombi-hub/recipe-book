@@ -12,3 +12,4 @@
 
 - Put everything inside the tortilla
 - Cook in a pan
+- Eat with salsa for a better taste
